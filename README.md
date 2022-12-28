@@ -1,4 +1,4 @@
-## Oiii eu sou Ronaldo Santos, amante de programação e tecnologia!
+## Hi I'm Ronaldo Santos, amante de programação e tecnologia!
 
 - 👋 Hi, I’m @ronaldusantos
 - 👀 I’m interested in ...
